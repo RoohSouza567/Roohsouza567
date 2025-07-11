@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil da Rooh Souza😁
+## Bem-vindo(a) ao perfil da Rosane Souza 😁
 
  <div>
    <a href="https://github.com/RoohSoza567">
